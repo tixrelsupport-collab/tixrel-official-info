@@ -24,3 +24,12 @@ Tixrel Official: Next-Gen Short Video & Creator Platform
 ​Lock in your unique username (handle) before someone else takes it.
 ​Set up your profile, upload your first 10-20 short videos, and get ready for the official launch!
 ​👉 Don't wait for the app store release—lock your handle today at: tixrel.com
+## What Does TIXREL Stand For? (Brand Name Meaning)
+While Tixrel is a next-generation social media and AI platform, the name **TIXREL** represents the core values driving our technology:
+* **T — THUNDER:** Power & Impact
+* **I — ILLUMINATION:** Light & Inspiration
+* **X — XTREME:** Extraordinary Energy & Beyond Limits
+* **R — REACH:** Global Connection & Worldwide Presence
+* **E — EMPOWER:** Talent, Opportunity & Growth
+* **L — LIGHTNING:** Speed, Energy & Instant Impact
+*
